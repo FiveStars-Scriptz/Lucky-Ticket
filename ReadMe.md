@@ -1,5 +1,5 @@
 Thanks for purchase 
-Join to Discord https://discord.gg/goldscripts
+Join to Discord https://discord.gg/RZ9tVRxT8u
 
 Add to your shops 
 ex. 
